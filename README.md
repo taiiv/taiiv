@@ -10,3 +10,4 @@ Meu nome é Tainara Vincenzi
 
 00001105629442sp@al.educacao.sp.gov.br
 
+![](https://media.tenor.com/DnMOr2rgYaQAAAAM/jim-carrey-jim-carrey-typing.gif)
